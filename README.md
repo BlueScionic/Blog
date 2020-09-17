@@ -1,1 +1,1 @@
-# Blog
+# BlueScionic Resources
